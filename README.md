@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @testnvi
+- 👀 I’m interested in rdp
+- 🌱 I’m currently learning rdp
+- 💞️ I’m looking to collaborate on rdp.
